@@ -1,6 +1,11 @@
 # Satan-s-warning-
 
-ChatGPT
+# Are you seeing things and hear things?
+
+https://www.youtube.com/watch?v=z-bogevWpq0
+
+# ChatGPT
+
 這裡有一些形容「惡人」的成語，每個成語都傳達出不同的負面特質：
 
 1. **助紂為虐** - 幫助壞人作惡，指協助惡人或壞事的行為。
